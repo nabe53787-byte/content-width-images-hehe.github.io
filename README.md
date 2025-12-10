@@ -1,7 +1,8 @@
 热门中文字幕-官方中文字幕-中文字幕在线播放
 
 # <a href="https://nabe53787-byte.github.io/content-width-images-hehe.github.io/">点击访问：</a>
-![Vp1 image](vp1.png)
+
+[![热门中文字幕-官方中文字幕-中文字幕在线播放](vp1.png)](https://nabe53787-byte.github.io/content-width-images-hehe.github.io/)
 
 随着网络影视平台快速发展，观众对字幕品质的要求不断提升，其中热门中文字幕资源因覆盖面广、更新速度快而深受用户青睐。不论是最新剧集还是经典电影，热门字幕版本都能帮助观众迅速理解剧情，提高整体观影体验。
 
